@@ -1,1 +1,1 @@
-# glucosehuang.github.io
+Good Good Study, Day Day Up!
